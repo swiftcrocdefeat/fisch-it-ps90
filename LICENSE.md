@@ -1,4 +1,4 @@
-
+exclusive Scripts for minecraft is the best minecraft Script, featuring auto-upgrade and teleport. Safe and powerful for all your needs.
 
 
 
